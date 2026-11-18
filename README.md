@@ -11,3 +11,5 @@ i won't bother making this aesthetic.
 
 feel free 2 talk to me. i might come off as energetic because i like meeting new ppl, but if u need me to tone it down then i will. no problems w/ that.
 however, don't expect us to chat all that often. :) thanks
+##
+(!)[https://files.catbox.moe/n79eoo.gif]
