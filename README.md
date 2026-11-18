@@ -4,6 +4,8 @@ i won't bother making this aesthetic.
 
 - ivan . they he it . fictkin/id
 - I love my boyfriend @andrewbadthingz <3 he's my most favorite person ever
+- multifandom + multishipper:)
+- 
 - **c+h** freely (_unless_ w/ bf and or friends. ask first if that's the case) , **w2i**
   be aware i will not hesitate to speak my mind if i think ur being weird
 
@@ -12,4 +14,4 @@ i won't bother making this aesthetic.
 feel free 2 talk to me. i might come off as energetic because i like meeting new ppl, but if u need me to tone it down then i will. no problems w/ that.
 however, don't expect us to chat all that often. :) thanks
 ##
-(!)[https://files.catbox.moe/n79eoo.gif]
+ivan bad things
